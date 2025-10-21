@@ -5,3 +5,5 @@ otani is God:)
 foooooo
 
 shinjo sad
+
+do hanshin lose
