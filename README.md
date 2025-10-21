@@ -6,4 +6,4 @@ foooooo
 
 shinjo sad
 
-do hanshin lose
+Will Hanshin win?
